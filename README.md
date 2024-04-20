@@ -1,0 +1,2 @@
+# astrologia
+Interpretaciones astrologicas
